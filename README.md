@@ -32,8 +32,9 @@
 
 ### 📫 Let's Connect!
 
-- [LinkedIn](https://www.linkedin.com/in/PhCtrlZ) – let's connect and collaborate on innovative projects!
+- [Facebook](https://www.facebook.com/PhCtrlZ/) – let's connect in facebook!
 - [GitHub](https://github.com/PhCtrlZ) – explore my repositories and feel free to contribute or share ideas!
+- [Instagram](https://www.instagram.com/phctrlz/) – let's connect in Ig!
 
 ---
 
